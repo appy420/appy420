@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @appy420
+- 👀 I’m interested in machines and women also
+- 🌱 I’m currently learning Python
+- 📫 akholiya71@gmail.com
